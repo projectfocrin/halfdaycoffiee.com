@@ -1,1 +1,0 @@
-# halfdaycoffiee.com
